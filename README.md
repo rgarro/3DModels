@@ -18,4 +18,4 @@ https://sketchfab.com/RolandoGarroMena
 
 https://play.unity.com/u/RolandoGarroMena
 
-[![que no se resistieran, por que sino los mataban ... ](https://raw.githubusercontent.com/rgarro/3DModels/master/goldesaprissa.png)]
+[![en jardines de tibas NO regalan casas NO prestan casas ni cocheras No dejan hacer pulperia, por que sino los mataban, al frente de Tala mataron a un guardia civil y otros varios murieron acuchillados en pleitos de embargos ... ](https://raw.githubusercontent.com/rgarro/3DModels/master/goldesaprissa.png)]
